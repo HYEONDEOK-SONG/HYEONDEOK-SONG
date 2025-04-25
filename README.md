@@ -66,9 +66,7 @@
 
 ## 만든이
 
-**요아정 암사점 운영팀 x GFC AI 전략팀**  
-문의: [yoajeong.amsa@gmail.com](mailto:yoajeong.amsa@gmail.com)
-
+**요아정 암사점 shd482@gmail.com
 ---
 
 ## 라이선스
